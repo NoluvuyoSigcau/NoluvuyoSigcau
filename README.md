@@ -3,7 +3,7 @@
 ## 💻 Software Developer
 
 Welcome to my GitHub profile! I'm passionate about building software solutions and continuously growing my skills in the world of technology.
-https://ai-career-artisan.lovable.app/
+🌐 [View My Portfolio](https://ai-career-artisan.lovable.app/)
 ---
 
 ## 🙋‍♀️ About Me
